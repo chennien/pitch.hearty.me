@@ -3,7 +3,7 @@
 
 # Pitch Deck (Business Plan), Hearty Journal 2024 | 溫度日記募資簡報
 
-[www.hearty.me](https://go.nien.co/2EuAjQV) 
+[nien.com/bp](https://bit.ly/3OaL00K) 
 
 
 [iOS](https://apple.co/3AXkUah) | 
